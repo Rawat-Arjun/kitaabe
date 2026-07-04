@@ -137,7 +137,7 @@ Feel free to reach out via:
 
 * Email: [arjunrawat1212@gmail.com](mailto:arjunrawat1212@gmail.com)
 * GitHub: [github.com/Rawat-Arjun](https://github.com/Rawat-Arjun)
-* LinkedIn: [linkedin.com/in/arjunrawat](https://linkedin.com/in/arjunrawat)
+* LinkedIn: [linkedin.com/in/arjun-rawat-8a3441355](https://linkedin.com/in/arjun-rawat-8a3441355)
 
 ---
 
